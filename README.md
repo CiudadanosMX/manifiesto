@@ -8,3 +8,5 @@ Hoy no solo es un día de protesta por la indignación y el desconsuelo. Hoy sig
 
 
 Conscientes de la urgente necesidad de rescatar nuestra identidad nacional, proclamamos los siguientes principios emancipadores, que conducirán inmediatamente nuestro actuar, el de nuestros poderes públicos y de quienes estos representen, así como de nuestra relación con el mundo.
+
+# http://metanacion.org
