@@ -9,4 +9,19 @@ Hoy no solo es un día de protesta por la indignación y el desconsuelo. Hoy sig
 
 Conscientes de la urgente necesidad de rescatar nuestra identidad nacional, proclamamos los siguientes principios emancipadores, que conducirán inmediatamente nuestro actuar, el de nuestros poderes públicos y de quienes estos representen, así como de nuestra relación con el mundo.
 
-# http://metanacion.org
+
+Reconocemos a la Constitución vigente como la Ley fundamental que ha conducido la vida política, social, económica y cultural de México y, conscientes de nuestra corresponsabilidad,  proponemos que esta debe ser sustituida y mejorada bajo un proceso democrático, deliberativo y pacífico, sin menoscabo a ningún derecho humano que esté plenamente reconocido en ella.
+
+
+Iniciamos inmediatamente una etapa de reconstrucción de la vida pública de nuestro país, con el objetivo de crear un nuevo sistema político y un nuevo documento constitutivo que nos conduzca a una nueva meta nacional, sin que eso signifique el más mínimo intento de desestabilizar la coexistencia y vida de todos y cada uno de nosotros.
+
+
+Proponemos como base de nuestras acciones, el ser transparentes, interdependientes, horizontales, incluyentes, plurales, colaborativos y sobre todo, conscientes de nuestros derechos y obligaciones.
+
+
+Aportamos nuestros conocimientos, tiempo y recursos necesarios para arrancar esta nueva etapa en México y establecemos como indispensable el uso de tecnologías para facilitar procesos y acercar de manera auténtica a las personas.
+
+
+Decretamos como transitorios los poderes públicos vigentes y a sus titulares, así como los que deriven de las subsecuentes elecciones federales, estatales y locales.
+
+Exhortamos a quienes detentan la administración de los poderes ejecutivos, de quienes tienen el carácter de representantes de la Nación y de los funcionarios que imparten la justicia, a reconocer la realidad y manifestación nacional y suscribir el presente manifiesto, si de verdad anhelan como nosotros una tangible transformación de México.
